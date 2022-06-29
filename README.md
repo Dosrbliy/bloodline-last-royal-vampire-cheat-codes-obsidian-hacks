@@ -1,2 +1,5 @@
-# bloodline-last-royal-vampire-cheat-codes-obsidian-hacks
-Bloodline Last Royal Vampire Cheats codes unlimited Obsidian Hacks tutorial
+# Bloodline Last Royal Vampire Cheats codes unlimited Obsidian Hacks tutorial
+
+Bloodline Last Royal Vampire Cheats codes unlimited Obsidian Hacks tutorial - Mages rely on intelligence to increase attack damage, hit rate and critical hit rate. Assigning more attributes to int can increase their attack strength, but it is also necessary to assign attribute points to spir or spirit to improve their magic defense, maximum MP and MP regeneration ability. Please note that mages are not specifically used to cause damage, because this class can also perform healing spells. Kingdom: the blood oath provides players with additional space to create multiple characters. With this in mind, if you are playing a tested class and realize that your game style is more suitable for another class, you are free to switch to another character. Although in most MMORPGs, there is always an option to switch between multiple roles, it is best to always focus on one role, because maximizing the time required for one role is undoubtedly a huge challenge.
+
+<a href="https://windmod.icu/bloodline-last-royal-vampire/">go here</a>
